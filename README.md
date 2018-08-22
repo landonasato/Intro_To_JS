@@ -1,2 +1,1 @@
-# Math_Randomization
-no u 
+# Why exactly are you here? 
